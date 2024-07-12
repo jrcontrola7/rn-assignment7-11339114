@@ -37,7 +37,8 @@ Screenshots
 
 ![Untitled-1](https://github.com/user-attachments/assets/f49028a0-7c90-47d1-9d80-29eafd84a104)
 
-![Uploading Untitled.jpg…]()
+![Untitled-1](https://github.com/user-attachments/assets/f23a86d7-b0e1-462c-8819-ddbad50b2599)
+
 
 
 
